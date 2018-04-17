@@ -1,2 +1,3 @@
 # common-
 common project
+Lonnie Corant Jaman Shuka Rashid Lynn, Jr.[1] (born March 13, 1972), better known by his stage name Common (formerly Common Sense), is an American hip hop recording artist, actor, poet, and film producer. Common debuted in 1992 with the album Can I Borrow a Dollar? and maintained a significant underground following into the late 1990s, after which he gained notable mainstream success through his work with the Soulquarians.[2] In 2011, Common launched Think Common Entertainment, his own record label imprint, and, in the past, has released music under various other labels such as Relativity, Geffen and GOOD Music, among others.
